@@ -19,7 +19,7 @@
 * **官方名称：** OixCloud
 * **官网：** [OixCloud](https://oixcloud.com/r/r5567c8a898546bbf)
 * **备用链接：** [OixCloud 备用](https://todesk.io/r/r5567c8a898546bbf)
-* **我的邀请码：** [https://oixcloud.com/r/r5567c8a898546bbf](https://oixcloud.com/r/r5567c8a898546bbf)
+* **我的邀请码：** [https://bit.ly/4zAoAeM](https://bit.ly/4zAoAeM)
 * **行业地位：** 前 **Dler Cloud 墙洞**，**前女友频道排行第一**。**Silver 以上套餐拥有专线接入**，采用**年付 + 限制年流量**的策略，价格很高，体验很好。**OpenClash 作者的推荐**（详见 OpenClash 设置-OixCloud）。
 * **博客评测：** [OixCloud：前 Dler Cloud 墙洞](https://travisblog.qzz.io/article/oixcloud-review)
 
